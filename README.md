@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=ijbolfurry&color=red&style=plastic&label=stalkers)
+  ![](https://komarev.com/ghpvc/?username=ijbolfurry&color=FF69B4&style=plastic&label=veiws)
 
 >Only 4 Ponytown
 >
