@@ -2,7 +2,7 @@
 
 ![wing L](https://i.postimg.cc/gc5VYw01/IMG-2228.gif)![view counter](https://komarev.com/ghpvc/?username=ijbolfurry&color=FF69B4&style=plastic&label=veiws)![wing R](https://i.postimg.cc/pdxQggdt/IMG-2227.gif)
 
-read my [CARRD](https://pullfurr.carrd.co) 4 more!
+only for ponytown || read my [CARRD](https://pullfurr.carrd.co) 4 more!
 
 —-—
 <p align="center">
